@@ -1,7 +1,7 @@
 # Privacy Policy for QR Code, All Barcode scanner
-At Humanverse, accessible from a, one of our main priorities is the privacy of our visitors. This Privacy Policy document contains types of information that is collected and recorded by Humanverse and how we use it.
+At Privacy Policy for QR Code, accessible from a, one of our main priorities is the privacy of our visitors. This Privacy Policy document contains types of information that is collected and recorded by Privacy Policy for QR Code and how we use it.
 If you have additional questions or require more information about our Privacy Policy, do not hesitate to contact us.
-This Privacy Policy applies only to our online activities and is valid for visitors to our application with regards to the information that they shared and/or collect in Humanverse. This policy is not applicable to any information collected offline or via channels other than this application. Our Privacy Policy was created with the help of the Free Privacy Policy Generator.
+This Privacy Policy applies only to our online activities and is valid for visitors to our application with regards to the information that they shared and/or collect in Privacy Policy for QR Code. This policy is not applicable to any information collected offline or via channels other than this application. Our Privacy Policy was created with the help of the Free Privacy Policy Generator.
 Consent
 By using our application, you hereby consent to our Privacy Policy and agree to its terms.
 Information we collect
